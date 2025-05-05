@@ -1,0 +1,1 @@
+kata kata hari iniiii
