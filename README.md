@@ -1,1 +1,1 @@
-kata kata hari iniiii
+terima kasih fatihh
